@@ -18,5 +18,3 @@ Here are some ideas to get you started:
 - 🌧️🌱 I'm currently learning about Machine Learning especially in the weather prediction area. Everything that revolves around technology and nature fascinates me and it is definitely the field I want to work in.
 - 🔭 I love space. If you have any projects space related, I will definitely be interested.
 - 📬 You can reach me on LinkedIn! 😄
-
-- P.S. Hans Zimmer is the GCOT!

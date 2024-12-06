@@ -15,6 +15,5 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: ...
 -->
 
-- 🌧️🌱 I'm currently learning about Machine Learning and I want to apply it in climate science.
 - 🔭 I love space. If you have any projects space related, I will definitely be interested.
 - 📬 You can reach me on LinkedIn! 😄

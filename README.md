@@ -16,4 +16,4 @@ Here are some ideas to get you started:
 -->
 
 - 🔭 I love space. If you have any projects space related, I will definitely be interested.
-- 📬 You can reach me on LinkedIn! 😄
+- 📬 You can reach me on LinkedIn! 

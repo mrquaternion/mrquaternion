@@ -15,5 +15,5 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: ...
 -->
 
-- 🔭 I love space. If you have any projects space related, I will definitely be interested.
+- 🔭🌱 I love space and nature. If you have any project ideas related to those, I will definitely be interested.
 - 📬 You can reach me on LinkedIn! 
